@@ -1,0 +1,1 @@
+# hotelExmpl.github.io
